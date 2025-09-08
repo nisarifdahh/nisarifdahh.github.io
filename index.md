@@ -1,1 +1,2 @@
 Indonesian currently living in Fukuoka, Japan as 2nd year master student. Working hard on my first ever research about wireless sensor. In the mean time I love driving and explore private hot spring/onsen in Japan. Yoroshiku!
+I intend to make this page as informal as possible while documenting my academic pursuits, professional endeavors, and any interests of mine that I believe others would find interesting.
