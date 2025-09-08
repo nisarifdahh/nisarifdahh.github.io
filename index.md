@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Indonesian currently living in Fukuoka, Japan as 2nd year master student. Working hard on my first ever research about wireless sensor. In the mean time I love driving and explore private hot spring/onsen in Japan. Yoroshiku!
